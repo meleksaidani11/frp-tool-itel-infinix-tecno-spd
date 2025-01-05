@@ -1,4 +1,4 @@
-if you need source code its  just buy for me coffee
+if you need source code just buy for me coffee
 # frp-tool-itel-infinix-tecno-spd
 ![Screenshot 2025-01-05 134259](https://github.com/user-attachments/assets/f4ceb468-4c5e-4e84-bd3e-630ba43ccdd6)
 ![Screenshot 2025-01-05 134234](https://github.com/user-attachments/assets/89145ee9-cc96-4a01-bdda-f98d129cc873)
